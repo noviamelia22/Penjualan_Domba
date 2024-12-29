@@ -70,4 +70,5 @@ Home
 
 Produk
 
-![Screenshot (930)](https://github.com/user-attachments/assets/970741f6-687c-4523-85af-94d804458c0f)
+![Screenshot (930)](https://github.com/user-attachments/assets/832db667-184f-414d-9ce3-03bc98ceb076)
+
